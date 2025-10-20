@@ -1,5 +1,4 @@
-    ![inbound701875230917189623](https://github.com/user-attachments/assets/c0f5d5ce-d1cf-4497-9219-118488901e28)
-#![inbound701875230917189623](https://github.com/user-attachments/assets/c0f5d5ce-d1cf-4497-9219-118488901e28)
+
 
 # What's Your Favorite Topics 
 # Copy👇 or #Paste
@@ -22,13 +21,18 @@ A collections of different ideas
  
     # Globe Benta App Link [👉👉[▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta)]
     
-# *[Globe Benta App Link 👉👉▶️DownloadApp◀️ *(https://play.google.com/store/apps/details?id=com.globe.globebenta)*]/(search Globe Benta App) in Google Play Store  
->.  #
+# *Globe Benta* App Link 👉👉▶️DownloadApp◀️
+*https://play.google.com/store/apps/details?id=com.globe.globebenta)*
+# search *Globe Benta* App) in Google Play Store  
+>#
 
->     # Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
+># Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈Download Application
+>https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
 
  ##
-    # Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
+# Globe🌐One App Link 👉 
+# Download Application🆗
+*https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp*
  >            [https://YouTube.com/WilliamFamily-1938(
     📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA📩Type your message )
 >     #             ☝️copy send👉[https://Messenger.com/m.me]
