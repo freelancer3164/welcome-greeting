@@ -1,25 +1,23 @@
-
-
 # What's Your Favorite Topics 
 # Copy👇 or #Paste
     # Welcome Greeting
 A collections of different ideas
  > 
-# [https://GitHub.com/@willget/welcome-greeting/search]
+#https://GitHub.com/@willget/welcome-greeting/search
     #
-     .  # [*****[*👈👈👈👈👉👉👉👉](https://play.google.com/store/apps/details?id=com.android.chrome)***]
+# *👈👈👈👈👉👉👉👉https://play.google.com/store/apps/details?id=com.android.chrome**
 
 
     [***## WATCH favorite SHOW[👉[*🖥️🖥️🖥️🖥️🖥️🖥️](https://play.google.com/store/apps/details?id=com.absi.tfctv)*]***] 👈may not always available
 
-    [****[*🔜🔜🔜🔜🔜🔹WORDPRESS🔹](https://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?fbclid=IwY2xjawNYWXhleHRuA2FlbQIxMQABHioZmU1JlCjY4lZPDtA7-meLMe6kWqKk9qZT-KQzDp-nfhaTQCcHNjAh13FX_aem_aiJ07ShSSaSrI8yi0TcU4g)***]
+🔜🔜🔜🔜🔜🔹WORDPRESS🔹](https://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?fbclid=IwY2xjawNYWXhleHRuA2FlbQIxMQABHioZmU1JlCjY4lZPDtA7-meLMe6kWqKk9qZT-KQzDp-nfhaTQCcHNjAh13FX_aem_aiJ07ShSSaSrI8yi0TcU4g)***]
 
-    ####
+ ####
  Load Here 
-    # 👇
-.  #
+# 👇
+#
  
-    # Globe Benta App Link [👉👉[▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta)]
+# Globe Benta App Link [👉👉[▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta)]
     
 # *Globe Benta* App Link 👉👉▶️DownloadApp◀️
 *https://play.google.com/store/apps/details?id=com.globe.globebenta)*
