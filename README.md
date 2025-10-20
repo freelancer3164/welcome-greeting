@@ -6,31 +6,31 @@
 ## Welcome Greeting
 A collections of different ideas
 # https://GitHub.com/@willget/welcome-greeting/search
-    #
-# *👈👈👈👈👉👉👉👉https://play.google.com/store/apps/details?id=com.android.chrome**
+#
+### *👈👈👈👈👉👉👉👉https://play.google.com/store/apps/details?id=com.android.chrome**
 
 
-[***## WATCH favorite SHOW[👉[*🖥️🖥️🖥️🖥️🖥️🖥️](https://play.google.com/store/apps/details?id=com.absi.tfctv)*]***] 👈may not always available
+#### WATCH favorite SHOW[👉[*🖥️🖥️🖥️🖥️🖥️🖥️](https://play.google.com/store/apps/details?id=com.absi.tfctv)*]***] 👈may not always available
 
 🔜🔜🔜🔜🔜🔹WORDPRESS🔹](https://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?fbclid=IwY2xjawNYWXhleHRuA2FlbQIxMQABHioZmU1JlCjY4lZPDtA7-meLMe6kWqKk9qZT-KQzDp-nfhaTQCcHNjAh13FX_aem_aiJ07ShSSaSrI8yi0TcU4g)***]
 
- ####
+####
  Load Here 
 # 👇
 #
  
-# Globe Benta App Link [👉👉[▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta)]
+#### Globe Benta App Link [👉👉[▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta)]
     
-# *Globe Benta* App Link 👉👉▶️DownloadApp◀️
+#### *Globe Benta* App Link 👉👉▶️DownloadApp◀️
 *https://play.google.com/store/apps/details?id=com.globe.globebenta)*
 # search *Globe Benta* App) in Google Play Store  
 >#
 
-># Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈Download Application
+>#### Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈Download Application
 >https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
 
  ##
-# Globe🌐One App Link 👉 
+#### Globe🌐One App Link 👉 
 # Download Application🆗
 *https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp*
  >            [https://YouTube.com/WilliamFamily-1938(
@@ -65,34 +65,33 @@ https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe
 
 ***click here 👉🌐Clip *https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ**
 **Watch 👉*Youtube Short👈*https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp*
-    ## ## https://YouTube.com 🌐
+#### *YouTube.com* 🌐
     🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
->     ####
+> ####
 
->     ####
-    # How's Your Day?
+>  ####
+# How's Your Day?
      ####
-    ## *[*View Canva]()*🌐
+## *[*View Canva]()*🌐
 >     ####
-    # My Favorites
+# My Favorites
     [*****[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
 >     [******[my project*](https://gabeandreaproj4.my.canva.site/hello)*]
 >     ####
-    ## Upcoming
+## Upcoming
 - ## Lyza's- Birthday on Nov 2025
 
 ##'!(https://youtube.com/clip/UgkxvfB74phLYvBqHYc_wBa90obLTCyatksH?si=qecg4s28JHyxLgUa)'
 
  > ####
-    ## Watch here👉👉 ****[*Lyza's Video](https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*🖥️🖥️🖥️
+## Watch here👉👉 ****[*Lyza's Video](https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*🖥️🖥️🖥️
   ####
-    ## [***[*📷📸📷Photo Gallery 📸📷📸🔒🔒](https://play.google/store/apps/details?id=com.coloros.gallery3d)****]
+## [***[*📷📸📷Photo Gallery 📸📷📸🔒🔒](https://play.google/store/apps/details?id=com.coloros.gallery3d)****]
 
 >####
 # New Topics
 
-####
-          🔗🔠🔠Chrome🔠
+#### 🔗🔠🔠Chrome🔠
 *https://play.google.com/store/apps/details?id=com.android.chrome* 🔠🔠🔠🔗
 # Play Music * *Play NOW*🎹🎸🎺
 *https://open.spotify/track*💿
