@@ -75,32 +75,33 @@ https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe
 
 
 #How's Your Day?
-*[*View Canva]()*🌐
+**View Canva]()*🌐
 #My Favorites
-[*****[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
+# MyCanvaAcct
+*https://play.google.com/store/apps/details?id=com.canva.editor)*
 *myproject*
 *https://gabeandreaproj4.my.canva.site/hello*
 
-##Upcoming
+## Upcoming
  Lyza's- Birthday on Nov 2025
 
 *https://youtube.com/clip/UgkxvfB74phLYvBqHYc_wBa90obLTCyatksH?si=qecg4s28JHyxLgUa*
 
  Watch here👉👉 # *Lyza's Video*
- *https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb* 🖥️🖥️🖥️
+ *____________not available* 🖥️🖥️🖥️
 
 ****📷📸📷Photo Gallery 📸📷📸🔒🔒*https://play.google/store/apps/details?id=com.coloros.gallery3d)*
 
 
-#New Topics
+# New Topics
 
 🔗🔠🔠Chrome🔠
 *https://play.google.com/store/apps/details?id=com.android.chrome* 🔠🔠🔠🔗
 #Play Music * *Play NOW*🎹🎸🎺
 *https://open.spotify/track*💿
-    # Open *[Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
-    # Open *[Spotify Music🎸🎸🎺](    https://play.google.com/store/apps/details?id=com.spotify.music      )*💿
-    # Open *[Spotify Music💿](https://www.spotify.com)*💿
+    # Open *Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
+    # Open *Spotify Music🎸🎸🎺](    https://play.google.com/store/apps/details?id=com.spotify.music      )*💿
+    # Open *Spotify Music💿](https://www.spotify.com)*💿
 
 #my personal link
 
