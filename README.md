@@ -7,11 +7,13 @@ A collections of different ideas
 https://GitHub.com/@willget/welcome-greeting/search
 
 # 👈👈👈👈*Google*👉👉👉👉
-.#####
+#####
 *https://play.google.com/store/apps/details?id=com.android.chrome*
-*
-#WATCH favorite SHOW👉🖥️🖥️🖥️search Google Play Store🖥️🖥️🖥️👈
-.##### *https://play.google.com/store/apps/details?id=com.absi.tfctv*** 👈may not always available
+
+# WATCH favorite SHOW👉🖥️🖥️🖥️search Google Play Store🖥️🖥️🖥️👈
+
+#####
+*https://play.google.com/store/apps/details?id=com.absi.tfctv* 👈may not always available
 
 🔜🔜🔜🔜🔜🔹WORDPRESS🔹](https://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?fbclid=IwY2xjawNYWXhleHRuA2FlbQIxMQABHioZmU1JlCjY4lZPDtA7-meLMe6kWqKk9qZT-KQzDp-nfhaTQCcHNjAh13FX_aem_aiJ07ShSSaSrI8yi0TcU4g)***]
  Load Here 
