@@ -43,7 +43,8 @@ Messenger.com/m.me
 
 *https://m.youtube.com/@WilliamFamily-1938*)
 
-📩📩 *https://github.com/willget/Pho-Tos/releases*
+## 📩📩
+ *https://github.com/willget/Pho-Tos/releases*
   Watch Videos on Youtube
 *click here-👉 Clip 👈from "Faded"***
 https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*
@@ -69,7 +70,9 @@ https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe
 🔗*https://youtube.com/clip/UgkxQRphi1FUe3cEQgI7EaDbEsCGS0WG12CF?si=d2mBtC3BepX0wCXv*
 
 ***click here 👉🌐Clip *https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ**
-**Watch 👉*Youtube Short👈*https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp*
+#
+## **Watch 👉*Youtube Short
+*https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp*
 ####*YouTube.com* 🌐
 🖥️🖥️🖥️ Watch Youtube channel *https://www.youtube/@WilliamFamily-1938*
 
@@ -95,8 +98,10 @@ https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe
 
 # New Topics
 
-🔗🔠🔠Chrome🔠
+## 🔗🔠🔠Chrome🔠
 *https://play.google.com/store/apps/details?id=com.android.chrome* 🔠🔠🔠🔗
+#
+#####
 #Play Music * *Play NOW*🎹🎸🎺
 *https://open.spotify/track*💿
     # Open *Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
@@ -128,14 +133,18 @@ Gospel Library 📖📘*https://play.google.com/store/apps/details?id=org.lds.ld
 #🔹🔹🔹🔹My App
 *https://play.google.com/store/apps/details?id=egov.app*🔹🔹🔹
 
-https://william311964.wordpress.com
+> # *https://william311964.wordpress.com*
+
 *![inbound3058567337821972989*(https://github.com/user-attachments/assets/786086a7-ab9e-4f08-8671-9d71faf3d7b2)
 *![inbound997125432839516025*(https://github.com/user-attachments/assets/6c556348-c3f0-47a1-93cf-967b3604c09f)
 
  *https://play.google/store/apps/details?id=absi.t*
 
- https://github.com/willget/Pho-Thos)/
->'*![inbound8887234505497761099]*(https://github.com/user/willget/Photos)'
+>https://github.com/willget/Pho-Thos<
+ 
+>'*!inbound8887234505497761099]*
+>
+>*https://github.com/user/willget/Photos*<
 
       
 
