@@ -1,4 +1,5 @@
->>>>>>### @What's Your *Favorite* Topic 
+###
+### @What's Your *Favorite* Topic 
 
 Copy👇 or #Paste
 Welcome Greeting
