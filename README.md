@@ -27,9 +27,9 @@ search *Globe Benta* App) in Google Play Store
 Globe🌐One App Link 👉 
 Download Application🆗
 *https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp*
- >            [https://YouTube.com/WilliamFamily-1938(
+https://YouTube.com/WilliamFamily-1938(
     📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA
-    📩Type your message )
+    📩Type your message 
            ☝️copy send👉
 Messenger.com/m.me
  Suggestions
@@ -42,19 +42,25 @@ Messenger.com/m.me
 *click here-👉 Clip 👈from "Faded"***
 https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*
 
-🔗 https://youtube.com/clip/UgkxgyQY6_JizfOIsx5L5fzPslQEX3sYuCZ6?si=fcFXfjqdc4coS1pi
+#####🔗 *https://youtube.com/clip/UgkxgyQY6_JizfOIsx5L5fzPslQEX3sYuCZ6?si=fcFXfjqdc4coS1pi*
 
-🔗 https://youtube.com/clip/Ugkx7Du5clH-wwacf7OPyDbY30RmxHH7Kowz?si=ACmbJbwJx_-_QQBf
+#####
+🔗*https://youtube.com/clip*/Ugkx7Du5clH-wwacf7OPyDbY30RmxHH7Kowz?si=ACmbJbwJx_-_QQBf
 
-🔗 https://youtube.com/clip/UgkxgyQY6_JizfOIsx5L5fzPslQEX3sYuCZ6?si=_3Cf1ZFmYhZeA4gt
+#####
+🔗*https://youtube.com/clip*/UgkxgyQY6_JizfOIsx5L5fzPslQEX3sYuCZ6?si=_3Cf1ZFmYhZeA4gt
 
-🔗 https://youtube.com/clip/UgkxfuoayNkdL-XvqW-jGzRZERwbDt91vgDS?si=SJlgd31FU2j4Eorv
+#####
+🔗*https://youtube.com/clip/UgkxfuoayNkdL-XvqW-jGzRZERwbDt91vgDS?si=SJlgd31FU2j4Eorv*
 
-🔗 https://youtube.com/clip/UgkxEORwxa6miP6qMhLIHJttumz05sXhduZE?si=Mz15ggjAhhKNpfW-
+#####
+🔗*https://youtube.com/clip/UgkxEORwxa6miP6qMhLIHJttumz05sXhduZE?si=Mz15ggjAhhKNpfW-*
 
-🔗 https://youtube.com/clip/Ugkx1mTWQhXR-oUTWQybBylsTz9xmsU1L70H?si=JspDQ_bb1wMQkjhk
+#####
+🔗*https://youtube.com/clip/Ugkx1mTWQhXR-oUTWQybBylsTz9xmsU1L70H?si=JspDQ_bb1wMQkjhk*
 
-🔗 https://youtube.com/clip/UgkxQRphi1FUe3cEQgI7EaDbEsCGS0WG12CF?si=d2mBtC3BepX0wCXv
+#####
+🔗*https://youtube.com/clip/UgkxQRphi1FUe3cEQgI7EaDbEsCGS0WG12CF?si=d2mBtC3BepX0wCXv*
 
 ***click here 👉🌐Clip *https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ**
 **Watch 👉*Youtube Short👈*https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp*
