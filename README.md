@@ -25,12 +25,11 @@ A collections of different ideas
  *Globe Benta* App Link 👉👉▶️DownloadApp◀️
 *'https'://play.google.com/store/apps/details?id=com.globe.globebenta*
 
-                        > search
-                         Globe Benta
-                         Mobile#______
-                        
-                        
-                      
+  #### search            
+           .
+           .
+           .Paste Link                      
+                                                                      
 search *Globe Benta* App) in Google Play Store  
 > #
 Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈Download Application
@@ -44,7 +43,15 @@ Globe🌐One App Link 👉
 'https'://YouTube.com/WilliamFamily-1938
  'https'://youtube.com/play.list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA
  
-    📩Type your message 
+   Search on *YouTube*
+   
+   #### 
+   copy🔗link   
+        
+        
+        
+        Type your Link 
+   
            ☝️copy send👉
 Messenger.com/m.me
  Suggestions
