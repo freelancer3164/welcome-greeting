@@ -69,7 +69,8 @@ https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe
 #####
 🔗*https://youtube.com/clip/UgkxQRphi1FUe3cEQgI7EaDbEsCGS0WG12CF?si=d2mBtC3BepX0wCXv*
 
-***click here 👉🌐Clip *https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ**
+***click here 👉🌐Clip *https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ** 👈
+*https://youtube.com/clip/UgkxNjrHgMssd3xzhCUf_SSZnyn0-pEUeoQr?si=7Bcy4EaN8w12hhNz* 👈
 #
 ## **Watch 👉*Youtube Short
 *https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp*
