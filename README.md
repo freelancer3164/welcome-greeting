@@ -1,4 +1,4 @@
-###
+### 1.0
 ### @What's Your *Favorite* Topic 
 
   ## Copy👇 or Paste
@@ -6,23 +6,23 @@
 A collections of different ideas
 'https'://GitHub.com/@willget/welcome-greeting/search
 
-# 👈👈👈👈*Google*👉👉👉👉
+### 2.0 👈👈👈👈*Google*👉👉👉👉
 #####
 *'https'://play.google.com/store/apps/details?id=com.android.chrome*
 
-# WATCH favorite SHOW👉🖥️🖥️🖥️search Google Play Store🖥️🖥️🖥️👈
+### 3.0 WATCH favorite SHOW👉🖥️🖥️🖥️search Google Play Store🖥️🖥️🖥️👈
 
 #####
 *'https'://play.google.com/store/apps/details?id=com.absi.tfctv* 👈 may not always available
 
-🔜🔜🔜🔜🔜🔹WORDPRESS🔹'https'://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?fbclid=IwY2xjawNYWXhleHRuA2FlbQIxMQABHioZmU1JlCjY4lZPDtA7-meLMe6kWqKk9qZT-KQzDp-nfhaTQCcHNjAh13FX_aem_aiJ07ShSSaSrI8yi0TcU4g)*
+### 4.0 🔜🔜🔜🔜🔜🔹WORDPRESS🔹'https'://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?fbclid=IwY2xjawNYWXhleHRuA2FlbQIxMQABHioZmU1JlCjY4lZPDtA7-meLMe6kWqKk9qZT-KQzDp-nfhaTQCcHNjAh13FX_aem_aiJ07ShSSaSrI8yi0TcU4g)*
 
 ## Load Here 
-# 👇
-*Globe Benta* App Link 👉👉▶️DownloadApp◀️
+### 5.0 👇
+ 1.0 *Globe Benta* App Link 👉👉▶️DownloadApp◀️
 *'https'://play.google.com/store/apps/details?id=com.globe.globebenta*
 
- *Globe Benta* App Link 👉👉▶️DownloadApp◀️
+ 2.0 *Globe Benta* App Link 👉👉▶️DownloadApp◀️
 *'https'://play.google.com/store/apps/details?id=com.globe.globebenta*
 
   #### search            
@@ -31,11 +31,11 @@ A collections of different ideas
            .Paste Link                      
                                                                       
 search *Globe Benta* App) in Google Play Store  
-> #
+> ### 3.0
 Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈Download Application
 >*'https'://play.google.com/store/apps/details?id=com.globe.gcash.android* 🔗👈 
 
-####
+#### 4.0
 Globe🌐One App Link 👉 
   Download Application🆗
 *'https'*://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp*
@@ -63,36 +63,36 @@ Clip👉https'://youtube.com/clip/UgkxePp7B5Ce4TaqXLX9kAzyayT9Trmq6fDP?si=83-kCS
 
 ## 📩📩
  *'https'://github.com/willget/Pho-Tos/releases*
-### Watch Videos on Youtube
+### 5.0 Watch Videos on Youtube
 click here 👇
-🔗 *👉 Clip 👈 from "Faded" 
+### 1.0 🔗 *👉 Clip 👈 from "Faded" 
 *'https'://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6**
 
 #####
-🔗 'https'://*youtube.com/clip/UgkxgyQY6_JizfOIsx5L5fzPslQEX3sYuCZ6?si=fcFXfjqdc4coS1pi*
+## 2.0 🔗 'https'://*youtube.com/clip/UgkxgyQY6_JizfOIsx5L5fzPslQEX3sYuCZ6?si=fcFXfjqdc4coS1pi*
 
 #####
-🔗
+## 3.0 🔗
 *'https'://youtube.com/clip*/Ugkx7Du5clH-wwacf7OPyDbY30RmxHH7Kowz?si=ACmbJbwJx_-_QQBf
 
 #####
-🔗
+## 4.0 🔗
 *'https'://youtube.com/clip*/UgkxgyQY6_JizfOIsx5L5fzPslQEX3sYuCZ6?si=_3Cf1ZFmYhZeA4gt
 
 #####
-🔗
+## 5.0 🔗
 *'https'://youtube.com/clip/UgkxfuoayNkdL-XvqW-jGzRZERwbDt91vgDS?si=SJlgd31FU2j4Eorv*
 
 #####
-🔗
+## 6.0 🔗
 *'https'://youtube.com/clip/UgkxEORwxa6miP6qMhLIHJttumz05sXhduZE?si=Mz15ggjAhhKNpfW-*
 
 #####
-🔗
+## 7.0🔗
 *'https'://youtube.com/clip/Ugkx1mTWQhXR-oUTWQybBylsTz9xmsU1L70H?si=JspDQ_bb1wMQkjhk*
 
 #####
-🔗
+## 8.0🔗
 *'https'://youtube.com/clip/UgkxQRphi1FUe3cEQgI7EaDbEsCGS0WG12CF?si=d2mBtC3BepX0wCXv*
 
 👉 *click here* 👉 🌐 Clip *'https'://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ** 👈
