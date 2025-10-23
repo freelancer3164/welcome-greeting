@@ -50,12 +50,12 @@ Globe🌐One App Link 👉
         
         
         
-        Type your Link https://youtube.com/clip/UgkxePp7B5Ce4TaqXLX9kAzyayT9Trmq6fDP?si=83-kCSRln8DoPzKL
+        Type your Link https'://youtube.com/clip/UgkxePp7B5Ce4TaqXLX9kAzyayT9Trmq6fDP?si=83-kCSRln8DoPzKL
    
            ☝️copy send👉
 Messenger.com/m.me
 
-Clip👉https://youtube.com/clip/UgkxePp7B5Ce4TaqXLX9kAzyayT9Trmq6fDP?si=83-kCSRln8DoPzKL
+Clip👉https'://youtube.com/clip/UgkxePp7B5Ce4TaqXLX9kAzyayT9Trmq6fDP?si=83-kCSRln8DoPzKL
  Suggestions
 > You might like
 
@@ -113,7 +113,7 @@ click here 👇
 *'https'://play.google.com/store/apps/details?id=com.canva.editor)*
 *myproject*
 *'https'://gabeandreaproj4.my.canva.site/hello*
-https://william3164.my.canva.site/personal-copy
+https://william311964.my.canva.site/personal-copy
 
 ## Upcoming
  Lyza's- Birthday on Nov 2025
