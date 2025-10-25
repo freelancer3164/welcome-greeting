@@ -29,7 +29,7 @@ A collections of different ideas
            .
            ."Mag-log in sa Facebook | Facebook" https://m.facebook.com/login/
            .Paste Link                      
-                                                  "Mag-log in sa Facebook | Facebook" https://m.facebook.com/login/                    
+                                                  "Mag-log in sa Facebook | Facebook" [https://m.facebook.com/login/]                    
 search *Globe Benta* App) in Google Play Store  
 > ### 3.0
 Gcash App Link 👉🔗💵💳💰🪙📩💌🏧👈Download Application
