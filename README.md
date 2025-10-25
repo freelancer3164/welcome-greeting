@@ -56,9 +56,9 @@ Globe🌐One App Link 👉
    
            ☝️copy send👉
 Messenger.com/m.me
-"Mag-log in sa Facebook | Facebook" https://'www.facebook.com'/login/
-https'://'www.facebook.com'/share/r/1CyikAxYa2/'
-https'://'www.facebook.com'/'share/r/1Eo7kHtREH/'
+"Mag-log in sa Facebook | Facebook" https://www.facebook.com/login/
+https'://'www'.facebook.com/share/r/1CyikAxYa2/'
+https'://'www'.facebook.com/'share/r/1Eo7kHtREH/'
 
 Clip👉https'://youtube.com/clip/UgkxePp7B5Ce4TaqXLX9kAzyayT9Trmq6fDP?si=83-kCSRln8DoPzKL
  Suggestions
