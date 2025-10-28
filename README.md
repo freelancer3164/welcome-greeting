@@ -150,10 +150,11 @@ click here 👇
 
 ### My Personal Reference
 Gospel Library 📖📘
-#####
-*https://play.google.com/store/apps/details?id=org.lds.ldssa)*
-
-Gospel Library 📖📘*https://play.google.com/store/apps/details?id=org.lds.ldssa*
+##
+####
+Gospel Library 📖📘
+####
+https://play.google.com/store/apps/details?id=org.lds.ldssa&pcampaignid=web_share
 
 
 #### 🔹🔹🔹🔹My App
