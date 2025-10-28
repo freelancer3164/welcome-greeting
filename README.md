@@ -78,7 +78,8 @@ click here 👇
 
 
 #####
-## 6.0 🔗
+##### 
+6.0 🔗https://play.google.com/store/apps/details?id=com.chrome.beta&pcampaignid=web_share
 
 
 #####
