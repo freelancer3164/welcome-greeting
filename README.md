@@ -65,9 +65,7 @@ click here 👇
 🔗https://play.google.com/store/apps/details?id=com.jetpack.android&pcampaignid=web_share
 
 #####
-## 3.0 🔗
-*
-
+##### 3.0 🔗https://play.google.com/store/apps/details?id=com.globe.gcash.android&pcampaignid=web_share
 #####
 ## 4.0 🔗
 *
