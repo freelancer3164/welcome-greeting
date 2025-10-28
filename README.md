@@ -61,7 +61,8 @@ click here 👇
 ### 1.0 🔗 *👉 Clip 👈 
 
 #####
-## 2.0 🔗 
+##### 2.0 
+🔗https://play.google.com/store/apps/details?id=com.jetpack.android&pcampaignid=web_share
 
 #####
 ## 3.0 🔗
