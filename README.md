@@ -20,6 +20,15 @@ A collections of different ideas
 ####
 https://wordpress.com/
 
+####
+https://william532722956.wordpress.com/
+
+####
+https://william532722659.wordpress.com/
+
+####
+https://gabeandrea.wordpress.com/
+
 ## Load Here 
 ### 5.0 👇
  1.0 *Globe Benta* App Link 👉👉▶️DownloadApp◀️
