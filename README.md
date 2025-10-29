@@ -15,7 +15,7 @@ A collections of different ideas
 #####
 *'https'://play.google.com/store/apps/details?id=com.absi.tfctv* 👈 may not always available
 
-### 4.0 🔜🔜🔜🔜🔜🔹WORDPRESS🔹'https'://william311964.wordpress.
+### 4.0 🔜🔜🔜🔜🔜🔹WORDPRESS🔹https://william311964.wordpress.
 
 ## Load Here 
 ### 5.0 👇
