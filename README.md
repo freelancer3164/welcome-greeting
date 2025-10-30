@@ -5,87 +5,106 @@ A collections of different ideas
 
 ####
 >
-# [*****[*👈👈👈👈👉👉👉👉](https://play.google/store/apps/details?id=com.android.chrome)***]
+####*👈👈👈👈👉👉👉👉https://play.google/store/apps/details?id=com.android.chrome
 
+#####
 
- [*****[findshare/*[*🖥️🖥️🖥️🖥️🖥️🖥️](https://play.google/store/apps/details?id=com.absi.tfctv)*]***]
+🖥️🖥️🖥️🖥️🖥️🖥️https://play.google/store/apps/details?id=com.absi.tfctv
 
- [****[*🔜🔜🔜🔜🔜🔹WORDPRESS🔹](https://william311964.wordpress/2025/04/11/williamfamily-1964-2/?fbclid=IwY2xjawNYWXhleHRuA2FlbQIxMQABHioZmU1JlCjY4lZPDtA7-meLMe6kWqKk9qZT-KQzDp-nfhaTQCcHNjAh13FX_aem_aiJ07ShSSaSrI8yi0TcU4g)***]
+🔜🔜🔜🔜🔜🔹WORDPRESS🔹](https://william311964.wordpress/
+
 > ####
-# Globe Benta App Link [🔗⛓️‍💥⛓️‍💥⛓️‍💥[🌐🌐🌐🌐⛓️‍💥](https://play.google/store/apps/details?id=com.globe.globebenta)🔗🔗🔗]
+####🔗⛓️‍💥⛓️‍💥⛓️‍💥[🌐🌐🌐🌐⛓️‍💥https://play.google/store/apps/details?id=com.globe.globebenta
+
 >
 > ####
-# Gcash App Link [🔗🔗🔗[🔗💵💳💰🪙📩💌🏧🔗](https://play.google/store/apps/details?id=com.globe.gcash.android)🔗🔗🔗]
+#### Gcash App Link 🔗💵💳💰🪙📩💌🏧
+🔗https://play.google/store/apps/details?id=com.globe.gcash.android)
 
  ####
- # Globe🌐One App Link [🆗🆗🆗[🆗🔠🔡🔢🆗](https://play.google/store/apps/details?id=ph.com.globe.globeonesuperapp)🆗🆗🆗]
->####
- ## Watch Videos on Youtube
- > ****[*click here-👉 Clip 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
-  >  **** [click here 👉🌐- Clip👈*](https://youtube/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
-> *****[Watch 👉Youtube Short👈*](https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)**]
-  ## Youtube 🌐
-  [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
->  ####
-# Messenger_[creation_D7C04A42-B914-45A6-9228-D72B368873F5.jpeg]
->####
- # How's Your Day?
- ####
- ## *[*View Canva]()*🌐
->####
-# My Favorites
-[*****[*# My Canva Acct*](https://play.google/store/apps/details?id=com.canva.editor)****]
-> [******[my project*](https://gabeandreaproj4.my.canva.site/hello)*]
->####
- ## Upcoming
-- ## Lyza's- Birthday on Nov 2025
- > ####
-  ## Watch here👉👉 ****[*Lyza's Video](https://github/fb)*🖥️🖥️🖥️
-  ####
- ## [***[*📷📸📷Photo Gallery 📸📷📸🔒🔒](https://play.google.com/store/apps/details?id=com.coloros.gallery3d)****]
+ #### Globe🌐One App Link🆗🆗🆗[🆗🔠🔡🔢
+https://play.google/store/apps/details?id=ph.com.globe.globeonesuperapp
 
 >####
-# New Topics
+ ### Watch Videos on Youtube
+ >click here-👉 Clip 👈
+(https://youtube/clip/
+  click here 👉🌐- Clip
+https://youtube/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ
 
 ####
-[🔗🔠🔠[Chrome🔠](https://play.google.com/store/apps/details?id=com.android.chrome)🔠🔠🔠🔗]
- # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify/track/)*💿
-> ####
-# Open *[Spotify Music🎹🎺🎸](https://open.spotify/)*💿 
-# Open *[Spotify Music🎸🎸🎺](    https://play.google/store/apps/details?id=com.spotify.music      )*💿
-# Open *[Spotify Music💿](https://www.spotify)*💿
+####
+Watch 👉Youtube Short
+https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp
+## Youtube 🌐🖥️🖥️🖥️ Watch Youtube channe
+https://www.youtube/@WilliamFamily-1938
+
+>  ####
+# Messenger
+
 >####
-# my personal link
-> ####
+# How's Your Day?
+####
+##### View Canva🌐
+####
+
+####My Favorites
+
+#### MyCanvaAcct
+https://play.google/store/apps/details?id=com.canva.editor
+
+>#### my project
+https://gabeandreaproj4.my.canva.site/hello
+>####
+### Upcoming
+### Lyza's- Birthday on Nov 2025
+####
+### Watch here👉👉 ****[*Lyza'sVideohttps://github/🖥️🖥️🖥️
+
+ ####
+ ### 📷📸📷Photo Gallery 📸📷📸🔒🔒 https://play.google.com/store/apps/details?id=com.coloros.gallery3d
+
+####
+#### New Topics
+
+####
+🔠🔠[Chrome🔠
+https://play.google.com/store/apps/details?id=com.android.chrome)🔠🔠🔠🔗
+ # Play Music *[*Play NOW*🎹🎸🎺https://open.spotify/track/
+>####
+#### Open Spotify Music🎹🎺🎸 https://open.spotify/)*💿 
+
+#### Open Spotify Music🎸🎸🎺 https://play.google/store/apps/details?id=com.spotify.music
+#### Open *[Spotify Music💿](https://www.spotify)*💿
+>####
+### my personal link
+>####
 ### Wordpress
 >####
- # *[🌐Personal Private Site🌐](https://william3164.wordpress.com/)*
+###🌐Personal Private Site🌐https://william3164.wordpress.com/
 
  >####
-># [▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️](https://play.google.com/store/apps/details?id=instagram.android)⏮️🔼]
+>▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️
+https://play.google.com/store/apps/details?id=instagram.android)⏮️🔼
 
 
  ######
- #        🛍️            🛒
+ ##        🛍️            🛒
 ### 🛍️ Personal Link 🛒🛒 
->  ######
- # *[Shoplink](https://play.google/store/apps/details?id=com.shopee.ph )*
+>  #####
+### Shoplinkhttps://play.google/store/apps/details?id=com.shopee.ph )*
 
 ####
 
-  >
-  # My Personal Reference
-  # [*Gospel Library 📖📘](https://play.google.com/store/apps/details?id=org.lds.ldssa)*
 
-###
-> # [🔹🔹🔹[🔹My App🔹](https://play.google/store/apps/details?id=egov.app)🔹🔹🔹]
+#### My Personal Reference
+#### Gospel Library 📖📘https://play.google.com/store/apps/details?id=org.lds.ldssa
 
-> 
-
-           [findshare/*[*](https://play.google.com/store/apps/
+####
+🔹🔹🔹🔹My App🔹https://play.google/store/apps/details?id=egov.app
 
 
-           
-https://github.com/willget/welcome-greeting/
+
+ 
 
 
