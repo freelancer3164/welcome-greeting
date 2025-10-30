@@ -1,5 +1,4 @@
- ![inbound701875230917189623](https://github.com/user-attachments/assets/c0f5d5ce-d1cf-4497-9219-118488901e28)
-#![inbound701875230917189623](https://github.com/user-attachments/assets/c0f5d5ce-d1cf-4497-9219-118488901e28)
+ 
 
 #### What's Your Favorite Topics 
 #### Copy👇 or #Paste
@@ -19,49 +18,63 @@ A collections of different ideas
 #### 👇
  #####
  
-##### Globe Benta App Link [👉👉[▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta)]
+##### Globe Benta App Link [👉👉▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta
     
-##### *[Globe Benta App Link 👉👉▶️DownloadApp◀️ *(https://play.google.com/store/apps/details?id=com.globe.globebenta)*]/(search Globe Benta App) in Google Play Store  
+##### *[Globe Benta App Link 👉👉▶️DownloadApp◀️ https://play.google.com/store/apps/details?id=com.globe.globebenta
+
+search Globe Benta App) in Google Play Store
+  
 ######
 
-##### Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
+##### Gcash App Link 🔗
+💵💳💰🪙📩💌🏧Download Application
+https://play.google.com/store/apps/details?id=com.globe.gcash.android🔗👈
 
  #####
- #### Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
- ######            https://YouTube.com/WilliamFamily-1938(
-📩[https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA]
+ #### Globe🌐One App Link DownloadApplication🆗
+https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp
+
+#####            https://YouTube.com/WilliamFamily-1938
+
 ######
-📩Type your message )
->
-   ######
-   ######
- 👉👇copysend
-[https://Messenger.com/m.me]
-> 
-# [Suggestions] You might like
-> 
-[(https://m.youtube.com/@WilliamFamily-1938)]
+Type your message )
 ##### 
-#####
-📩📩https://github.com/willget/Pho-Tos/releases
+
+######
+👉👇copysend
+Messenger.com/m.me
+> 
+##Suggestions
+You might like
+> 
+https://m.youtube.com/@WilliamFamily-1938)
+##### 
+
+##### 📩📩https://github.com/willget/Pho-Tos/releases
  
 #### 
 #### Watch Videos on Youtube
-*[*click here-👉 Clip 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
+*[*click here-👉 Clip 👈
     
-[click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
+[click here 👉🌐- Clip👈*](https://youtube.com/clip/
 >
-> [Watch 👉Youtube Short👈*](https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)**]
+> Watch 👉Youtube Short👈
+
+https://youtube/shorts/
+
 ##### 
-#### [https://YouTube.com )]🌐]
+#### https://YouTube.com 🌐
+
 ##### 
-[🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
- ####
+
+🖥️🖥️🖥️ Watch Youtube channel
 
 ####
-# How's Your Day?
+
 ####
-## *[*View Canva]()*🌐
+### How's Your Day?
+####
+###*View Canva*🌐
 >  ####
 # My Favorites
 [*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
