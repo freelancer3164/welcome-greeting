@@ -1,14 +1,15 @@
 ## website
- #### william311964.wordpress.com
+ #### william311964.wordpress.com/@williameditor
+ https://william311964.wordpress.com/@williammancenido96
 #####
-page1. |@williameditor
+page1. |https://william311964.wordpress.com/@williameditor
 
-page2. |@williammancenido96.
+page2. |https://william311964.wordpress.com/@williammancenido96.
  #### gabeandrea.wordpress.com
  #####
-page1. |@williameditor
+page1. |https://gabeandrea.wordpress.com/@williameditor
 
-page2. |@williammancenido96
+page2. |https://gabeandrea.wordpress.com/@williammancenido96
 
 
 
