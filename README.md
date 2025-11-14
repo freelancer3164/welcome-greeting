@@ -16,7 +16,7 @@ page2. |https://gabeandrea.wordpress.com/@williammancenido96
 https://www.instagram.com/login/
 https://www.myheritage.com/login/
 https://www.canva.com/login/
-https://www.pnb.digital.com/login/
+https://www.pnb.com ph/
 https://www.github.com/login/
 https://www.yahoo.com/
 
