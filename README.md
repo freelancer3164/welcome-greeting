@@ -19,7 +19,7 @@ https://www.canva.com/login/
 https://www.pnb.digital.com/login/
 
 ##### Personal Reference
-###### https://thechurchofjesuschristoflatterdaysaints.org/
+###### https://lds.org/
 
 
 
