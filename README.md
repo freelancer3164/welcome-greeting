@@ -19,7 +19,7 @@ https://www.canva.com/login/
 https://www.pnb.digital.com/login/
 https://www.github.com/login/
 https://www.yahoo.com/
-https://egov.ph/
+
 https://lazada.ph
 https://shopee.ph/
 
