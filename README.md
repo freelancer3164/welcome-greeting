@@ -13,6 +13,9 @@ page2. |https://gabeandrea.wordpress.com/@williammancenido96
 
 ### Facebook-Messenger
 ###### https://www.facebook.com/login/
+https://www.instagram.com/login/
+https://www.myheritage.com/login/
+https://canva.com/login/
 
 
 
