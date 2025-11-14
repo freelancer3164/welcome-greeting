@@ -21,6 +21,7 @@ https://www.github.com/login/
 https://www.yahoo.com/
 
 https://lazada.ph
+
 https://shopee.ph/
 
 ##### Personal Reference
