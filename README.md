@@ -22,12 +22,12 @@ https://www.instagram/login/
 ###### https://www.github/login/@willget
 https://www.yahoo/
 
-https://lazada.ph
+https://lazada/
 
-https://shopee.ph/
+https://shopee/
 
 ##### Personal Reference
-###### https://lds.org/
+###### https://lds/
 ###### https://www.google
 
 
