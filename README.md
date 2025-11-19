@@ -20,7 +20,7 @@ https://www.instagram/login/
 ###### https://www.canva/login/
 ###### https://www.pnb.ph/
 ###### https://www.github/login/@willget
-https://www.yahoo.com/
+https://www.yahoo/
 
 https://lazada.ph
 
