@@ -1,15 +1,15 @@
 ## website
- #### william311964.wordpress.com/@williameditor
- https://william311964.wordpress.com/@williammancenido96
+ #### william311964.wordpress/@williameditor
+ https://william311964.wordpress/@williammancenido96
 #####
-page1. |https://william311964.wordpress.com/@williameditor
+page1. |https://william311964.wordpress/@williameditor
 
-page2. |https://william311964.wordpress.com/@williammancenido96.
- #### gabeandrea.wordpress.com
+page2. |https://william311964.wordpress/@williammancenido96.
+ #### gabeandrea.wordpress
  #####
-page1. |https://gabeandrea.wordpress.com/@williameditor
+page1. |https://gabeandrea.wordpress/@williameditor
 
-page2. |https://gabeandrea.wordpress.com/@williammancenido96
+page2. |https://gabeandrea.wordpress/@williammancenido96
 
 ### Facebook-Messenger
 ###### https://www.facebook/@mancenidowilliam
