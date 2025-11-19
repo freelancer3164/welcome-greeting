@@ -13,12 +13,12 @@ page2. |https://gabeandrea.wordpress.com/@williammancenido96
 
 ### Facebook-Messenger
 ###### https://www.facebook.com/@mancenidowilliam
-###### https://www.instagram.com/@mancenido431
+###### https://www.instagram/@mancenido431
 ###### https://www.facebook.com/@mancenido431
-https://www.instagram.com/login/
-#### https://www.myheritage.com/login/
-###### https://www.canva.com/login/
-###### https://www.pnb.com.ph/
+https://www.instagram/login/
+#### https://www.myheritage/login/
+###### https://www.canva/login/
+###### https://www.pnb.ph/
 ###### https://www.github/login/@willget
 https://www.yahoo.com/
 
