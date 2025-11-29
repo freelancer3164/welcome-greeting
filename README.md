@@ -27,8 +27,11 @@ https://lazada/
 https://shopee/
 
 ##### Personal Reference
-###### https://lds/
-###### https://www.google
+
+######
+https://lds.org/
+######
+https://www.youtube.com/
 
 
 
