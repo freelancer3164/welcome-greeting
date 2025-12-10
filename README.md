@@ -3,18 +3,18 @@
  william311964.wordpress.com/@williameditor
  https://william311964.wordpress/@williammancenido96
 ######
-page1. |https://william311964.wordpress/@williameditor
+page1. |https://william311964.wordpress.com/@williameditor
 
-page2. |https://william311964.wordpress/@williammancenido96.
+page2. |https://william311964.wordpress.com/@williammancenido96.
  #### gabeandrea.wordpress
  ######
-page1. |https://gabeandrea.wordpress/@williameditor
+page1. |https://gabeandrea.wordpress.com/@williameditor
 
-page2. |https://gabeandrea.wordpress/@williammancenido96
+page2. |https://gabeandrea.wordpress.com/@williammancenido96
 
 
 ####
-https://www.myheritage/login/
+https://www.myheritage.com/login/
 
 ######
 https://www.pnb.ph/
