@@ -3,9 +3,9 @@
 
 ######
   ####
-  https://designediting.my.canva.site/facebook-post
-  https://designediting.my.canva.site/design-march-18-2026
-  https://designediting.my.canva.site/home
+  https://designediting.my.canva.site/facebook-posts
+  https://designediting.my.canva.site/designediting-my-canva-site
+  https://designediting.my.canva.site/home-map
 ## website
  ######
  william311964.wordpress.com/@williameditor
