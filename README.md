@@ -1,13 +1,16 @@
-### YouTube.com/@Design Editing 917        (*https://m.youtube.com/@designediting.917*)
+#### [**`🔒YouTube.com/@Design Editing 917`**](https://m.youtube.com/@designediting.917)
 
-### YouTube.com/@Design Editing 917
-https://m.youtube.com/@designediting.947
 
-######
-  ####
-*[https://designediting.my.canva.site/facebook-youtube-news]*
-  *[https://designediting.my.canva.site/designediting-my-canva-site]*
-  *[https://designediting.my.canva.site/home-map]*
+ [**`🔒YouTube.com/@Design Editing 917`**](https://m.youtube.com/@designediting.947)
+
+
+[**`🔒designediting.my.canva.site`**](https://designediting.my.canva.site/railway-trip)
+
+
+[**`🔒designediting.my.canva.site/bill-payments`**](https://designediting.my.canva.site)
+
+
+
 ###### IMAGES
 
 ######
