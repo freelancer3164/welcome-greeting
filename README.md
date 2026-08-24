@@ -1,16 +1,20 @@
-#### [**`🔒YouTube.com/@Design Editing 917`**](https://m.youtube.com/@designediting.917)
+#### [**`🔒Design Editing 917`**](https://m.youtube.com/@designediting.917)
 
 
- [**`🔒YouTube.com/@Design Editing 917`**](https://m.youtube.com/@designediting.947)
+ [**`🔒Design Editing 947`**](https://m.youtube.com/@designediting.947)
 
 
-[**`🔒designediting.my.canva.site`**](https://designediting.my.canva.site/designmusic)
+### [**`🔒MUSIC`**](https://designediting.my.canva.site/designmusic)
+---
+
+### [**`🔒BILLPAYMENTS`**](https://designediting.my.canva.site/billpayments)
+---
 
 
-[**`🔒designediting.my.canva.site/bill-payments`**](https://designediting.my.canva.site)
 
+[**`🔒RAILWAY TRIP`**](https://designediting.my.canva.site/railway-trip)
 
-[**`🔒designediting.my.canva.site/railway-trip`**](https://designediting.my.canva.site/railway-trip)
+---<img width="2448" height="2448" alt="inbound3081861579579808078" src="https://github.com/user-attachments/assets/a2cdd742-d7df-43b9-aa53-bbfcccd11a50" />
 
 ###### IMAGES
 
