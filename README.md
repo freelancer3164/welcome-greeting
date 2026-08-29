@@ -1,8 +1,8 @@
-### [**`🔒William 917`**](https://m.youtube.com/@designediting.917)
+### [**`🔒William 917`**](https://m.youtube.com/@designediting.917)| `email:******@gmail.com`
 ---
 
 
- ### [**`🔒William 947`**](https://m.youtube.com/@designediting.947)[` YouTube_________🔍Search `](https://www.youtube.com/)
+ ### [**`🔒William 947`**](https://m.youtube.com/@designediting.947) |[` YouTube_________🔍Search `](https://www.youtube.com/)| `email:man********v@gmail.com`
 ---
 
 ### [**`🔒MUSIC`**](https://designediting.my.canva.site/designmusic)  `Page may not be available'
