@@ -5,7 +5,7 @@
  ### [**`🔒William 947`**](https://m.youtube.com/@designediting.947) |[` YouTube_________🔍Search `](https://www.youtube.com/)| `email:man********v@gmail.com`
 ---
 
-### [**`🔒MUSIC`**](https://designediting.my.canva.site/designmusic)  `Page may not be available'
+### [**`🔒MUSIC`**](https://designediting.my.canva.site/designmusic) |`Page may not be available`
 ---
 
 ### [**`🔒BILLPAYMENTS`**](https://designediting.my.canva.site/billpayments)
@@ -13,14 +13,14 @@
 
 
 
-[**`🔒RAILWAY TRIP`**](https://designediting.my.canva.site/railway-trip)
+### [**`🔒RAILWAY TRIP`**](https://designediting.my.canva.site/railway-trip)
 
 ---<img width="2448" height="2448" alt="inbound3081861579579808078" src="https://github.com/user-attachments/assets/a2cdd742-d7df-43b9-aa53-bbfcccd11a50" />
 
 ###### IMAGES
 
 ######
-email mancenidowilliam@gmail.com about photos👇:
+`email:` | `m********w*****m@gmail.com about photos👇:`
 
 
 <img width="2448" height="2448" alt="1000013574" src="https://github.com/user-attachments/assets/0a224f57-5be3-4c57-8d96-66990422ade8" />
