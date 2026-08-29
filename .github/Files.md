@@ -1,15 +1,18 @@
 #### This is a basic workflow to help you get started with Actions
 ######
-https://github.com/@freelancer3164/welcome-greeting/.github/williammancenido.org
-@Date: _______________                  
+[`Welcome Greeting`](https://github.com/@freelancer3164/welcome-greeting/) 
+`Links` | [`Wish107.5FM`](https://youtube.com/playlist?list=PLkrzfEDjeYJkTagryy2EGywljThKjE9XO&si=sFca7rz9bnDlOkEM)
+
+
+`.github/williammancenido.org`
+`@Date: _______________  `                
                  
 ## @ [Mobile No.](`__________`)
 
 #### Controls when the workflow will 
 run on: `JSON` 
 # "menu".
-######
-[*https://www.wordpress.com*("link"("HTML")"script")]
+###### [*https://www.wordpress.com*("link"("HTML")"script")]
   #### Triggers the workflow on push or pull request events but only for the "williammancenido.org" branch
  [`push:branches:`]( "williammancenido.org" )
  [`pull_request:branches:`] ("williammancenido.org")
