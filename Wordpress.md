@@ -1,5 +1,6 @@
 ####
-## `Links`
+## `Links` ********`My Personal Playlists`********
+[My ********`Everyday`******** Music](https://youtube.com/playlist?list=PLXPFet_zDHiqb4aaBB_4GMQDqeYcNfINJ&si=-K-M1HruuuGpNFs1)
 ---
 ### [**`IMAGES`**](https://designediting.my.canva.site/designmusic)
 <img width="2448" height="2448" alt="inbound7200721411083650083" src="https://github.com/user-attachments/assets/7fb93722-657d-42b3-b666-6d18257c2127" />   **`IMAGES`**
