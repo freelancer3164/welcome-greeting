@@ -1,5 +1,5 @@
 #
-# [LDS.ORG](https;//www.lds.org)
+# [LDS.ORG](https;//lds.org)
 #
 ####
 ## `Links` ********`My Personal Playlists`********
