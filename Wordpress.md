@@ -1,5 +1,5 @@
 #
-# [LDS.ORG](https://The Church of Jesus Christ of Latter-Day Saints)
+# [LDS.ORG](https://www.churchofjesuschrist.org/?lang=eng)
 #
 ####
 ## `Links` ********`My Personal Playlists`********
