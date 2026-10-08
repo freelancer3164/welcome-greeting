@@ -27,7 +27,7 @@
 
 ---
 
-## [GOOGLE PLAY STORE](https://play.google.com/store/apps/details?id=com.android.chrome)
+## 
 
 ---
 
