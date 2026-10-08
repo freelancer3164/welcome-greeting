@@ -2,7 +2,7 @@
 ---
 ## [General Conference](https://designediting.my.canva.site/bago)
 
-### [**`🔒William 917`**](https://designediting.my.canva.site/myfavorite) `email:******@gmail.com`
+### [OPM](https://designediting.my.canva.site/railway-trip) StopOver|Wish 107.5
 ---
 ********`Links`********[`Wish107.5FM`]()
 
