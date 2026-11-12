@@ -1,4 +1,4 @@
-### [Freelancer3164](https://en.wikipedia.org/wiki/Generic_drug#cite_note-3)
+### [Freelancer3164 | `Ano ang Generics`](https://en.wikipedia.org/wiki/Generic_drug#cite_note-3)
 ---
 
 
