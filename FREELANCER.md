@@ -1,4 +1,7 @@
 ### [Freelancer3164 | `Ano ang Generics`](https://en.wikipedia.org/wiki/Generic_drug#cite_note-3)
+
+### [Freelancer3164 | `Tungkol sa Story ng Musika`](https://en.wikipedia.org/wiki/Musical_theatre)
+
 ---
 
 
